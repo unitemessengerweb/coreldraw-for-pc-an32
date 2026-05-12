@@ -1,4 +1,4 @@
-# 
+# vip CorelDRAW for PC | CorelDRAW for Windows Addon | boolean-operations + grid-systems offers the most advanced CorelDRAW for PC | CorelDRAW for Windows addon, with
 
 
 
